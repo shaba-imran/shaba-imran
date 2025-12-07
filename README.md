@@ -13,6 +13,6 @@
 >> 
 >> [Linkedin](https://www.linkedin.com/in/imran-usman-shaba-4372291a9?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BnH98boaBQxSPVzBepithLg%3D%3D)
 >>
->> [Twitter](https://www.instagram.com/devleapcts?igsh=dDFkbTQ5MHlicm80&utm_source=qr)
+>> [Twitter](https://x.com/devleapcts)
 >>
 >>[Facebook](https://www.instagram.com/devleapcts?igsh=dDFkbTQ5MHlicm80&utm_source=qr)
