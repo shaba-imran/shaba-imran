@@ -9,10 +9,10 @@
 > 📫 You can reach me via the following platforms:
 > 
 >>
->> [My Portfolio](https://imran-usman-shaba-portfolio.netlify.app/)
+>> [My Portfolio]()
 >>
->>[Linkedin](https://www.linkedin.com/in/imran-usman-shaba-4372291a9?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BnH98boaBQxSPVzBepithLg%3D%3D)
+>>[Linkedin](https://www.linkedin.com/in/imran-usman-shaba-4372291a9)
 >>
 >> [Twitter](https://x.com/shabaimrandev)
 >>
->>[Instagram](https://www.instagram.com/shabaimrandev?igsh=dDFkbTQ5MHlicm80&utm_source=qr)
+>>[Instagram](https://www.instagram.com/shabaimrandev)
